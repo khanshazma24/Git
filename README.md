@@ -2,3 +2,4 @@
 
 - Alhamdullillah for Everything
 - AllahuAkbar
+- SubhanAllah
